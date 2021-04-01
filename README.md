@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sh708
-- 👀 I’m interested in ...coding and learning nre exciting things
+- 👀 I’m interested in ...coding and learning and exciting things
 - 🌱 I’m currently learning ...programming languages
 - 💞️ I’m looking to collaborate on ...effective and productive offers.
 - 📫 How to reach me ...
